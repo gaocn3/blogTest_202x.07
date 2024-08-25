@@ -6,6 +6,10 @@
 
 
 [202x.07.30.md](blogs/years/incoming/202x.07.30.md) 
+![图片示例](blogs/years/incoming/res/2024-08-25-01-00-13-623.jpg)
+
+
+
 
 
 
